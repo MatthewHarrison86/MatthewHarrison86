@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MatthewHarrison86
-- 👀 I’m interested in art, science, music, history, culture... life!
+- 👀 I’m interested in art, science, music, history, culture, learning, everything!
 - 🌱 I’m currently learning data analytics, SQL, R, Python, Excel, Tableau, and how to slow down and appreciate the moment.
 - 💞️ I’m looking to collaborate on ... I don't know, to be honest, I'm open to any ideas!
 - 📫 How to reach me: mwharrison86@gmail.com
